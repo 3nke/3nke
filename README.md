@@ -1,5 +1,6 @@
-## hihi i like project moon and regretevator and uuhhh i identify as a gas pedal yes yes ayhahahahahhahahahahshhdudjwjwmmdiejiikw also i'll make a strawpage soon i swear
-- ![Static Badge](https://img.shields.io/badge/get%20lobotomized-purple)
+## hi!!! i love project moon, tally hall/miracle musical, mili and regretevator! basic dni criteria, just don't be weird lol. PLEASE INTERACT WITH ME FIRST I'M SCARED OF PEOPLE OMG
+![image](https://github.com/user-attachments/assets/f4c45321-fa1e-41f4-9470-f3146941e818)
+
 
 <!--
 **enkephalinn/enkephalinn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
