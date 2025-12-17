@@ -1,4 +1,4 @@
-## hi!!! i love project moon, tally hall/miracle musical, mili and regretevator! basic dni criteria, just don't be weird lol. PLEASE INTERACT WITH ME FIRST I'M SCARED OF PEOPLE OMG
+## hi!!! read my first strawpage to get to know about me! my second strawpage is a wip lobotomy corporation themed one :]
 ![image](https://github.com/user-attachments/assets/f4c45321-fa1e-41f4-9470-f3146941e818)
 
 
