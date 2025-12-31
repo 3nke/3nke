@@ -1,4 +1,4 @@
-## hi!!! read my first strawpage to get to know about me! my second strawpage is a wip lobotomy corporation themed one :]
+## gonna remake my strawpage again, i'll keep the lobotomy corporation one up if you guys wanna see or send me stuff
 ![image](https://github.com/user-attachments/assets/f4c45321-fa1e-41f4-9470-f3146941e818)
 
 
