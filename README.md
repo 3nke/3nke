@@ -1,4 +1,4 @@
-## gonna remake my strawpage again, i'll keep the lobotomy corporation one up if you guys wanna see or send me stuff!!! i'll also be remaking my github woohoo look at this awesome (not awesome) wip :joy:
+## gonna remake my strawpage again, i'll keep the lobotomy corporation one up if you guys wanna see or send me stuff!!! i'll also be remaking my github woohoo look at this awesome (not awesome) wip.. it's gonna look bad on mobile users because i did this on my LAPTOP OKAY???? OKAY.
 <img width="1280" height="81" alt="image" src="https://github.com/user-attachments/assets/51b38305-b11b-495d-bbd4-382646c4ef9d" /> <img width="100" height="110" alt="image" src="https://github.com/user-attachments/assets/83cd4914-950d-453e-b138-8bfec8a01cb3" /> <img width="110" height="110" alt="image" src="https://github.com/user-attachments/assets/d242f5a6-6052-4744-adba-e02889d5ddb6" />
 
 <img width="860" height="305" alt="image" src="https://github.com/user-attachments/assets/4911fefc-2404-4e79-9bd9-45ff9a27e945" />
