@@ -13,7 +13,10 @@
 <img width="97" height="100" alt="image" src="https://github.com/user-attachments/assets/9e3a897c-b08f-4ba3-83cb-a1a5175500ba" />
 <img width="97" height="100" alt="image" src="https://github.com/user-attachments/assets/10c881c6-15dd-4468-94d3-81f5c9abb5c8" />
 
+⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚ <img src="https://media1.tenor.com/m/2NUrG53oe_QAAAAd/tally-hall-bana.gif" alt="a red curtain with tally hall &#39;s internet show on it"/><gif width="640" height="470" alt="image" src="https://github.com/user-attachments/assets/432e177a-933a-43f8-be6c-ae0e08424ced" />⠀⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
+[˗ˏˋ ★ ˎˊ˗ sign my atabook!˗ˏˋ ★ ˎˊ˗](https://enke.atabook.org/)  [˗ˏˋ ★ ˎˊ˗ strawpage, will be remade soon ˗ˏˋ ★ ˎˊ˗](https://enkephalinn.straw.page/) 
+[˗ˏˋ ★ ˎˊ˗roblox profile˗ˏˋ ★ ˎˊ˗](https://www.roblox.com/users/6170127268/profile)
 
 
 
