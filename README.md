@@ -1,9 +1,9 @@
 ## gonna remake my strawpage again, i'll keep the lobotomy corporation one up if you guys wanna see or send me stuff!!! i'll also be remaking my github woohoo look at this awesome (not awesome) wip.. it's gonna look bad on mobile users because i did this on my LAPTOP OKAY???? OKAY.
 <img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/5e4a7d43-1eaf-4847-9282-b4277376ee62" /> <img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/938074cf-6693-4b6e-b6fe-318d878c773e" /> <img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/e5c221bb-20d8-478f-a1e8-3757d36e7c8a" />
-<img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/0c327b24-efba-4270-874d-c48a68a3b785" />
+<img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/40887f89-9664-48ee-bcf8-a1c0a0557cb2" />
 𝚑𝚒𝚑𝚒! 𝚒'𝚖 𝚣𝚎𝚙𝚑, 𝚋𝚞𝚝 𝚒 𝚙𝚛𝚎𝚏𝚎𝚛 𝚝𝚘 𝚋𝚎 𝚌𝚊𝚕𝚕𝚎𝚍 𝚎𝚗𝚔𝚎. 𝚛𝚎𝚊𝚕𝚕𝚢 𝚝𝚑𝚘𝚞𝚐𝚑, 𝚋𝚘𝚝𝚑 𝚊𝚛𝚎 𝚏𝚒𝚗𝚎 𝚊𝚜 𝚕𝚘𝚗𝚐 𝚊𝚜 𝚢𝚘𝚞 𝚛𝚎𝚏𝚎𝚛 𝚝𝚘 𝚖𝚎 𝚊𝚜 𝚎𝚒𝚝𝚑𝚎𝚛 𝚘𝚗𝚎!! 𝚒 𝚑𝚘𝚗𝚎𝚜𝚝𝚕𝚢 𝚍𝚘𝚗'𝚝 𝚑𝚊𝚟𝚎 𝚊 𝚍𝚗𝚒 𝚕𝚒𝚜𝚝, 𝚒 𝚍𝚘 𝚑𝚘𝚙𝚎 𝚢𝚘𝚞 𝚑𝚊𝚟𝚎 𝚌𝚘𝚖𝚖𝚘𝚗 𝚜𝚎𝚗𝚜𝚎 𝚝𝚑𝚘𝚞𝚐𝚑 𝚊𝚗𝚍 𝚍𝚘𝚗'𝚝 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚞𝚙𝚙𝚘𝚛𝚝 𝚐𝚎𝚗𝚎𝚛𝚊𝚕𝚕𝚢 𝚋𝚊𝚍 𝚝𝚑𝚒𝚗𝚐𝚜. ^_^
 <img src="https://static.wikia.nocookie.net/library-of-ruina/images/b/b7/Epilogue_12.png/revision/latest/scale-to-width-down/1000?cb=20220511060413" alt="Epilogue_12"/>
-
+<img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/0c327b24-efba-4270-874d-c48a68a3b785" />
 <img src="https://media1.tenor.com/m/2NUrG53oe_QAAAAd/tally-hall-bana.gif" alt="a red curtain with tally hall &#39;s internet show on it"/><gif width="640" height="470" alt="image" src="https://github.com/user-attachments/assets/432e177a-933a-43f8-be6c-ae0e08424ced" /> <img width="97" height="100" alt="image" src="https://github.com/user-attachments/assets/10c881c6-15dd-4468-94d3-81f5c9abb5c8" />
 
 [⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ sign my atabook!˗ˏˋ ★ ˎˊ˗](https://enke.atabook.org/)    [˗ˏˋ ★ ˎˊ˗ strawpage, will be remade soon ˗ˏˋ ★ ˎˊ˗](https://enkephalinn.straw.page/) 
