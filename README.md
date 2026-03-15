@@ -1,54 +1,8 @@
-<img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/5e4a7d43-1eaf-4847-9282-b4277376ee62" /> <img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/938074cf-6693-4b6e-b6fe-318d878c773e" /> <img width="76" height="75" alt="image" src="https://github.com/user-attachments/assets/e5c221bb-20d8-478f-a1e8-3757d36e7c8a" />
-<img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/40887f89-9664-48ee-bcf8-a1c0a0557cb2" />
-<img src="https://static.wikia.nocookie.net/library-of-ruina/images/b/b7/Epilogue_12.png/revision/latest/scale-to-width-down/1000?cb=20220511060413" alt="Epilogue_12"/>
-<img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/0c327b24-efba-4270-874d-c48a68a3b785" />
-<img src="https://media1.tenor.com/m/2NUrG53oe_QAAAAd/tally-hall-bana.gif" alt="a red curtain with tally hall &#39;s internet show on it"/><gif width="800" height="600" alt="image" src="https://github.com/user-attachments/assets/432e177a-933a-43f8-be6c-ae0e08424ced" />
-
-[☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ sign my atabook!˗ˏˋ ★ ](https://enke.atabook.org/)    [ ˎˊ˗ strawpage, will be remade soon ˗ˏˋ ★ ](https://enkephalinn.straw.page/) 
-  [ ˎˊ˗to my roblox profileˏ⋆｡ﾟ☁︎｡⋆☾](https://www.roblox.com/users/6170127268/profile)
-
-<img src="https://i.imgur.com/1GZaTO5.gif" alt="tally-hall-scene-2000s-blinkies-zubin-sedghi-blinkie"/> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6bd577f-dd3d-47c7-bbef-8edd89e3b07f/dgsx991-90623cad-0196-48e0-a4ab-2fcba40bb959.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iNmJkNTc3Zi1kZDNkLTQ3YzctYmJlZi04ZWRkODllM2IwN2YvZGdzeDk5MS05MDYyM2NhZC0wMTk2LTQ4ZTAtYTRhYi0yZmNiYTQwYmI5NTkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.CqBtdtcP0HEtak4YpISEpZTpJrmLY-5HbDnSFW3AxKk" alt="Miracle Musical Blinkie"/> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/424230e5-0d77-4b73-99f6-6260e0bd557f/dfodbuh-680e7921-69f3-4aa0-a535-f4ef0bf602a2.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi80MjQyMzBlNS0wZDc3LTRiNzMtOTlmNi02MjYwZTBiZDU1N2YvZGZvZGJ1aC02ODBlNzkyMS02OWYzLTRhYTAtYTUzNS1mNGVmMGJmNjAyYTIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.dNQytH5YoW3yYZzs3wWLWZ07QKxanpy14ClKHvK6USI" alt="Tally Hall Members Blinkie!"/> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/424230e5-0d77-4b73-99f6-6260e0bd557f/dfmq5ig-ca5ab679-d85a-4970-a4e0-1b65044d805c.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi80MjQyMzBlNS0wZDc3LTRiNzMtOTlmNi02MjYwZTBiZDU1N2YvZGZtcTVpZy1jYTVhYjY3OS1kODVhLTQ5NzAtYTRlMC0xYjY1MDQ0ZDgwNWMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.yDkxfjOqhitpm2ZGLuaowq8zSuz7vcHj8j6ot7hPOD4" alt="Will Wood song reference?!?!"/> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/424230e5-0d77-4b73-99f6-6260e0bd557f/dfmq52o-33671a32-92e1-4e5f-b999-3b9a59e28b65.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi80MjQyMzBlNS0wZDc3LTRiNzMtOTlmNi02MjYwZTBiZDU1N2YvZGZtcTUyby0zMzY3MWEzMi05MmUxLTRlNWYtYjk5OS0zYjlhNTllMjhiNjUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Ah8G4PmEqW9i5bU35sx_iMieqgWhsYkkdyIw19FcL5U" alt="I hate bass players "/>
-
-<img width="1000" height="107" alt="image" src="https://github.com/user-attachments/assets/bd32accd-fefa-4098-aa64-baa7018e5bd5" />
-<img width="179" height="136" alt="image" src="https://github.com/user-attachments/assets/771ecae2-724e-4859-833e-97fceb554f6e" /> <img width="179" height="136" alt="image" src="https://github.com/user-attachments/assets/18866943-75df-473e-808d-b6945158cba0" /> <img width="179" height="136" alt="image" src="https://github.com/user-attachments/assets/4bd20a1f-d9a1-40d8-83c6-719212a3a659" /> <img <img width="179" height="136" alt="image" src="https://github.com/user-attachments/assets/d2b37962-c55d-4fe3-b4ed-e664dbe77e9e" />
-<img width="1727" height="89" alt="image" src="https://github.com/user-attachments/assets/6452c7fa-43fd-4099-9c10-27b757a2271b" />
-<img width="950" height="800" alt="image" src="https://github.com/user-attachments/assets/10c881c6-15dd-4468-94d3-81f5c9abb5c8" />
+- chud frutiger aero x zubin sedghi readme wip okay don't mind rn
+<img src="https://64.media.tumblr.com/860eb349e1cb530d5d83cd8d270aa04c/840180a87065cc08-31/s400x600/6db6f4ae33c44fcfc24fd2afb209674c70fcbcab.gifv" style="width: 2000px; height: 100 auto;" alt="Description">
 
 
+<img src="https://media.discordapp.net/attachments/1402306820873261197/1482568097352253602/4e0a0980-6738-4efc-9a5b-fc3696e96a27.png?ex=69b76ca3&amp;is=69b61b23&amp;hm=98f6c3791244474a750547715815fc5793959708e86ec81bd24955a4da6648d9&amp;=&amp;format=webp&amp;quality=lossless" style="width: 2000px; height: 100 auto;"/>
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<!--
-**enkephalinn/enkephalinn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ..
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+<img src="https://64.media.tumblr.com/0c2b87b7377d9d4df3b49873506a351f/3cb1fc505a591908-f2/s75x75_c1/5bbc2264bb793d882a7c3e1ad89de2ee55e62642.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/ec8fe1c0d5503ce9f001340472bd992d/3cb1fc505a591908-3b/s75x75_c1/5317dd961003cb2f4afa182bce93dbedd2e58c40.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/c9fa673fff85df41231ef0f8561570e2/3cb1fc505a591908-36/s75x75_c1/37de12eeeff5837f8bbf8da1876ae77bf37dd823.pnj" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/f673c1d7bffc8c8b81feb9ec93111096/3cb1fc505a591908-03/s75x75_c1/0609e7f03ffdc2d4b8556b3e030f6c283d6ee285.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/3cb5a3435f7ba3ce0b0173585378a84b/3cb1fc505a591908-2a/s75x75_c1/45f9e9c186ca06ad832235b482e1dfc15a7ef136.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/9495490be7418ce11a9a78926a744c3b/3cb1fc505a591908-52/s75x75_c1/46a2d235b8eca3772806421f196c0b8728b6ccdd.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/40d16c29cbed6d77e7a0b9ea794c1901/3cb1fc505a591908-43/s75x75_c1/eec4ca7d553c47bffa25ea839f14594565d27730.gifv" alt="#neocities from fish in a jar"/> <img src="https://64.media.tumblr.com/3580e3123fe0dae7dff5bf29e9835b2b/d9f9627d74995454-47/s75x75_c1/100a4750064276bf8ac98f61c4f54d44bb2eef64.gifv" alt="#decome from clementine/lou"/> <img src="https://64.media.tumblr.com/5759c1710a6e9166df6b5ff74fcf0384/d9f9627d74995454-3e/s75x75_c1/a0d464bccd7c699944ed82c52c6072494dea7661.gifv" alt="#decome from clementine/lou"/> <img src="https://64.media.tumblr.com/3b0071fd68e00457cd7bcf5db082e0d8/d9f9627d74995454-dd/s75x75_c1/2e10cd56bb938180722124f7a6e2d2667d6d911b.gifv" alt="#decome from clementine/lou"/> <img src="https://64.media.tumblr.com/feee5d26549bfa64a4257b72b83ffaa0/d9f9627d74995454-82/s75x75_c1/368b543bcb0e8e03c84f936d8b1a87d45867af91.gifv" alt="#decome from clementine/lou"/> <img src="https://64.media.tumblr.com/0c2b87b7377d9d4df3b49873506a351f/3cb1fc505a591908-f2/s75x75_c1/5bbc2264bb793d882a7c3e1ad89de2ee55e62642.gifv" alt="#neocities from fish in a jar"/>
