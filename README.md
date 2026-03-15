@@ -12,6 +12,25 @@
  <div align="center">
 <img src="https://media.discordapp.net/attachments/1402306820873261197/1482509535766904893/IMG_1572.webp?ex=69b73619&amp;is=69b5e499&amp;hm=2e79e9a40677ee23767af4b4b9474106c6ca8364c72ad9c8be1f28c36fb34288&amp;=&amp;format=webp&amp;width=822&amp;height=545"/> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" />
 
-<img src="https://64.media.tumblr.com/56b366b0c77af630d40fc838c9ad7b22/2feff335d979ffd1-c5/s2048x3072/4cb238fb08759e7d9da77475a6ecfe1c4b60bca6.pnj"/>
+𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴: (𝘮𝘢𝘪𝘯 𝘢𝘳𝘦 𝗯𝗼𝗹𝗱𝗲𝗱)
+
+𝙥𝙧𝙤𝙟𝙚𝙘𝙩 𝙢𝙤𝙤𝙣 (𝙡𝙤𝙗𝙘𝙤𝙧𝙥, 𝘳𝘶𝘪𝘯𝘢, 𝘭𝘪𝘮𝘣𝘶𝘴)
+
+𝙩𝙖𝙡𝙡𝙮 𝙝𝙖𝙡𝙡/𝙢𝙞𝙧𝙖𝙘𝙡𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡
+
+𝘳𝘦𝘨𝘳𝘦𝘵𝘦𝘷𝘢𝘵𝘰𝘳
+
+𝘫𝘶𝘴𝘵 𝘴𝘩𝘢𝘱𝘦𝘴 𝘢𝘯𝘥 𝘣𝘦𝘢𝘵𝘴
+
+𝘶𝘭𝘵𝘳𝘢𝘬𝘪𝘭𝘭
+
+𝘵𝘶𝘢𝘯𝘵𝘶'𝘴 𝘭𝘰𝘣𝘰𝘵𝘰𝘮𝘪𝘻𝘢𝘵𝘪𝘰𝘯 𝘣𝘳𝘢𝘯𝘤𝘩𝘦𝘴
+
+𝘴𝘰𝘥𝘪𝘬𝘬𝘦𝘯
+
+𝙥𝙧𝙤𝙟𝙚𝙘𝙩: 𝙧𝙪𝙨𝙝𝙚𝙧
+
+𝘵𝘩𝘦 𝘴𝘵𝘳𝘰𝘬𝘦𝘴
+<img src="https://64.media.tumblr.com/c99cc5360b163fea14143a984fe6a4a2/2feff335d979ffd1-9c/s2048x3072/192e94c7b2a50437143418d4fa589dd9cf72f437.pnj"/>
 
 placeholder
