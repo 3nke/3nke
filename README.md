@@ -28,3 +28,5 @@
 <img src="https://64.media.tumblr.com/e046ad72c6643fc2c3638e65d1e1cd6e/2feff335d979ffd1-26/s2048x3072/5f396d785abce865abd03b99512ff8ef90d79542.pnj"/>
 <img src="https://media.discordapp.net/attachments/1459068816444096573/1459072996244324455/image.png?ex=69b6fbde&amp;is=69b5aa5e&amp;hm=a798b780a80e9db1e48c821341497bc17f4d89539536cf6a960e45bab580eef9&amp;=&amp;format=webp&amp;quality=lossless&amp;width=385&amp;height=561"/> <img src="https://media.discordapp.net/attachments/1459068816444096573/1473888496899981555/6e8fd9aeb98527a61fbc8981f8208942.png?ex=69b77d21&amp;is=69b62ba1&amp;hm=4a3c7e183a5260bd7d95492433d6b8ced394d33f65abfd14e75c9ffd7524676e&amp;=&amp;format=webp&amp;quality=lossless&amp;width=421&amp;height=561"/>
 <img src="https://external-media.spacehey.net/media/sVIKKCKNrGuuH8CfP5QYVG_-uhuPbheUOF9AJ1mP8slU=/https://gifcity.carrd.co/assets/images/gallery38/770e4873.png?v=26dffab5" style="width: 2000px; height: 100 auto;"/>
+
+<img src="https://static.wikia.nocookie.net/aesthetics/images/5/5f/Asadal_design_graphics.jpg/revision/latest/scale-to-width-down/1000?cb=20230724003054" style="width: 2000px; height: 100 auto;" alt="Description">
