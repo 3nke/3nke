@@ -11,6 +11,8 @@
 
  <div align="center">
 <img src="https://media.discordapp.net/attachments/1402306820873261197/1482509535766904893/IMG_1572.webp?ex=69b73619&amp;is=69b5e499&amp;hm=2e79e9a40677ee23767af4b4b9474106c6ca8364c72ad9c8be1f28c36fb34288&amp;=&amp;format=webp&amp;width=822&amp;height=545"/> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" />   
+   
+⋆ ｡𖦹 ⋆｡°✩°｡⋆ 𖦹｡ ⋆ 
 
 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴: (𝘮𝘢𝘪𝘯 𝘢𝘳𝘦 𝗯𝗼𝗹𝗱𝗲𝗱)
 
@@ -24,3 +26,5 @@
 <img src="https://media.discordapp.net/attachments/1459364125057614005/1470934433577046151/quote_1470934258938806588.png?ex=69b749f1&amp;is=69b5f871&amp;hm=ebc0c75509f9696a2bd6561a3c7828b247dda46552ff20b61ceb76948892ba0e&amp;=&amp;format=webp&amp;quality=lossless" alt="Image"/>
 <img src="https://media.discordapp.net/attachments/1459364125057614005/1461577564081618975/quote_1461577307272646731.png?ex=69b6ddee&amp;is=69b58c6e&amp;hm=5e92ef3e317015a2f4eefdb043cad9ff897673f9d31d1741e936fec8ec00782b&amp;=&amp;format=webp&amp;quality=lossless&amp;width=871&amp;height=457" alt="Image"/>
 <img src="https://64.media.tumblr.com/e046ad72c6643fc2c3638e65d1e1cd6e/2feff335d979ffd1-26/s2048x3072/5f396d785abce865abd03b99512ff8ef90d79542.pnj"/>
+<img src="https://media.discordapp.net/attachments/1459068816444096573/1459072996244324455/image.png?ex=69b6fbde&amp;is=69b5aa5e&amp;hm=a798b780a80e9db1e48c821341497bc17f4d89539536cf6a960e45bab580eef9&amp;=&amp;format=webp&amp;quality=lossless&amp;width=385&amp;height=561"/> <img src="https://media.discordapp.net/attachments/1459068816444096573/1473888496899981555/6e8fd9aeb98527a61fbc8981f8208942.png?ex=69b77d21&amp;is=69b62ba1&amp;hm=4a3c7e183a5260bd7d95492433d6b8ced394d33f65abfd14e75c9ffd7524676e&amp;=&amp;format=webp&amp;quality=lossless&amp;width=421&amp;height=561"/>
+<img src="https://external-media.spacehey.net/media/sVIKKCKNrGuuH8CfP5QYVG_-uhuPbheUOF9AJ1mP8slU=/https://gifcity.carrd.co/assets/images/gallery38/770e4873.png?v=26dffab5" style="width: 2000px; height: 100 auto;"/>
