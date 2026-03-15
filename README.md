@@ -10,27 +10,17 @@
 
 
  <div align="center">
-<img src="https://media.discordapp.net/attachments/1402306820873261197/1482509535766904893/IMG_1572.webp?ex=69b73619&amp;is=69b5e499&amp;hm=2e79e9a40677ee23767af4b4b9474106c6ca8364c72ad9c8be1f28c36fb34288&amp;=&amp;format=webp&amp;width=822&amp;height=545"/> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" />
+<img src="https://media.discordapp.net/attachments/1402306820873261197/1482509535766904893/IMG_1572.webp?ex=69b73619&amp;is=69b5e499&amp;hm=2e79e9a40677ee23767af4b4b9474106c6ca8364c72ad9c8be1f28c36fb34288&amp;=&amp;format=webp&amp;width=822&amp;height=545"/> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" /> <img src="https://64.media.tumblr.com/526955790cd2e07e023d920c04ccff23/e8f9d5232d60ee81-0b/s250x400/54dc80d4f68ee8cfd8eb2b1a7c04128ebe24ecef.gifv" alt="#neocities from fish in a jar" style="width: 200px; height: 100 auto;" alt="Description" />   
 
 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴: (𝘮𝘢𝘪𝘯 𝘢𝘳𝘦 𝗯𝗼𝗹𝗱𝗲𝗱)
 
-𝙥𝙧𝙤𝙟𝙚𝙘𝙩 𝙢𝙤𝙤𝙣 (𝙡𝙤𝙗𝙘𝙤𝙧𝙥, 𝘳𝘶𝘪𝘯𝘢, 𝘭𝘪𝘮𝘣𝘶𝘴)
+𝙩𝙖𝙡𝙡𝙮 𝙝𝙖𝙡𝙡/𝙢𝙞𝙧𝙖𝙘𝙡𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡, 𝙥𝙧𝙤𝙟𝙚𝙘𝙩: 𝙧𝙪𝙨𝙝𝙚𝙧, 𝙥𝙧𝙤𝙟𝙚𝙘𝙩 𝙢𝙤𝙤𝙣 (𝙡𝙤𝙗𝙘𝙤𝙧𝙥, 𝘳𝘶𝘪𝘯𝘢, 𝘭𝘪𝘮𝘣𝘶𝘴)
 
-𝙩𝙖𝙡𝙡𝙮 𝙝𝙖𝙡𝙡/𝙢𝙞𝙧𝙖𝙘𝙡𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡
+𝘫𝘶𝘴𝘵 𝘴𝘩𝘢𝘱𝘦𝘴 𝘢𝘯𝘥 𝘣𝘦𝘢𝘵𝘴, 𝘶𝘭𝘵𝘳𝘢𝘬𝘪𝘭𝘭, 𝘳𝘦𝘨𝘳𝘦𝘵𝘦𝘷𝘢𝘵𝘰𝘳, 𝘵𝘶𝘢𝘯𝘵𝘶'𝘴 𝘭𝘰𝘣𝘰𝘵𝘰𝘮𝘪𝘻𝘢𝘵𝘪𝘰𝘯 𝘣𝘳𝘢𝘯𝘤𝘩𝘦𝘴, 𝘵𝘢𝘮𝘪𝘯𝘨.𝘪𝘰, 𝘵𝘩𝘦 𝘴𝘵𝘳𝘰𝘬𝘦𝘴, 𝘴𝘰𝘥𝘪𝘬𝘬𝘦𝘯, 𝘳𝘢𝘪𝘯 𝘸𝘰𝘳𝘭𝘥
 
-𝘳𝘦𝘨𝘳𝘦𝘵𝘦𝘷𝘢𝘵𝘰𝘳
-
-𝘫𝘶𝘴𝘵 𝘴𝘩𝘢𝘱𝘦𝘴 𝘢𝘯𝘥 𝘣𝘦𝘢𝘵𝘴
-
-𝘶𝘭𝘵𝘳𝘢𝘬𝘪𝘭𝘭
-
-𝘵𝘶𝘢𝘯𝘵𝘶'𝘴 𝘭𝘰𝘣𝘰𝘵𝘰𝘮𝘪𝘻𝘢𝘵𝘪𝘰𝘯 𝘣𝘳𝘢𝘯𝘤𝘩𝘦𝘴
-
-𝘴𝘰𝘥𝘪𝘬𝘬𝘦𝘯
-
-𝙥𝙧𝙤𝙟𝙚𝙘𝙩: 𝙧𝙪𝙨𝙝𝙚𝙧
-
-𝘵𝘩𝘦 𝘴𝘵𝘳𝘰𝘬𝘦𝘴
 <img src="https://64.media.tumblr.com/c99cc5360b163fea14143a984fe6a4a2/2feff335d979ffd1-9c/s2048x3072/192e94c7b2a50437143418d4fa589dd9cf72f437.pnj"/>
 
-placeholder
+<img src="https://media.discordapp.net/attachments/1459364125057614005/1476383180436017152/quote_1476382083407417457.png?ex=69b755fc&amp;is=69b6047c&amp;hm=acb11eb3221a60c5f99fe86695889f69f8638f3050eb4581d84ed66ec91cbf9e&amp;=&amp;format=webp&amp;quality=lossless&amp;width=871&amp;height=457" alt="Image"/>
+<img src="https://media.discordapp.net/attachments/1459364125057614005/1470934433577046151/quote_1470934258938806588.png?ex=69b749f1&amp;is=69b5f871&amp;hm=ebc0c75509f9696a2bd6561a3c7828b247dda46552ff20b61ceb76948892ba0e&amp;=&amp;format=webp&amp;quality=lossless" alt="Image"/>
+<img src="https://media.discordapp.net/attachments/1459364125057614005/1461577564081618975/quote_1461577307272646731.png?ex=69b6ddee&amp;is=69b58c6e&amp;hm=5e92ef3e317015a2f4eefdb043cad9ff897673f9d31d1741e936fec8ec00782b&amp;=&amp;format=webp&amp;quality=lossless&amp;width=871&amp;height=457" alt="Image"/>
+<img src="https://64.media.tumblr.com/e046ad72c6643fc2c3638e65d1e1cd6e/2feff335d979ffd1-26/s2048x3072/5f396d785abce865abd03b99512ff8ef90d79542.pnj"/>
