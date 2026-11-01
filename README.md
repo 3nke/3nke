@@ -12,7 +12,7 @@
 
 err hi im **enke** okay!! this github will <ins>_only be for ponytown_</ins> ^_^
 
-***she/they, infp sp6w7 639***
+***they/any, infp sp6w7 639***
 
 light inspiration is okay but straight up *copying/posting my skins* ***WITHOUT MY PERMISSION*** *is strictly prohibited.* sorry, i just get really upset when that happens.
 
